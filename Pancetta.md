@@ -26,7 +26,7 @@ Day 29: 30 minutes
 ## Ingredients
 
 * 1 12 lb. pork belly
-* 1 ⅓ tbsp. Instacure No. 1 curing salt
+* 1 ⅓ tbsp. Instacure No. 1 curing salt - normally the salt and sugar alone should be enough
 * ⅔ cup kosher salt
 * ⅓ cup brown sugar
 * 10 cloves garlic
